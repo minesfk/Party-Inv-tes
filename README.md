@@ -1,1 +1,1 @@
-# Party-Inv-tes
+# Party-Invıtes
